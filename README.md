@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YineisyM
 - 👀 I’m interested in learning about Marketing in Web3!
-- 🌱 I’m currently learning how to be a great Gardener at Commons Stack.
+- 🌱 I’m currently working as Community Gardener at Commons Stack.
 - 💞️ I’m looking to collaborate on communities that generate impact as the Trusted Seed.
 - 📫 How to reach me Discord: Yineisy Mota#1449.
 
