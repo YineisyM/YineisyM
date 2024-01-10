@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @YineisyM
-- 👀 I’m interested in learning about Marketing in Web3!
-- 🌱 I’m currently working as Community Gardener at Commons Stack.
-- 💞️ I’m looking to collaborate on communities that generate impact as the Trusted Seed.
-- 📫 How to reach me Discord: Yineisy Mota#1449.
+- 👋 Hi, growth enthusiast @YineisyM reporting for duty!
+- 👀 Cultivating the future of marketing in Web3, one seed at a time 🌱
+- 🌱 Community Gardner ➡️ Web3 Marketing Explorer. Growing impactful communities, IRL and online.
+- 💞️ Always open to co-creating impact-driven Web3 communities. Now seeking product adventures in web3 to solve new puzzles. DM me about potential collaborations!
+- 📫 Let's connect! Discord: Yineisy Mota#1449 | Twitter: @YineisyMota
 
 <!---
 YineisyM/YineisyM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
